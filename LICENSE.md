@@ -1,4 +1,4 @@
-
+Enhance Bitwarden for macOS with vip Bitwarden for macOS Service | firewall-protection + identity-theft-protection, the #1 service. Includes firewall-protection and
 
 
 
